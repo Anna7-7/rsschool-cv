@@ -3,7 +3,7 @@
 ## Contact:
   - _Phone_: +375445111975
   - _email_: an1tachka21@gmail.com
-  - _GitHub_: https://github.com/
+  - _GitHub_: https://github.com/anna7-7
  
 
 ## Summary
